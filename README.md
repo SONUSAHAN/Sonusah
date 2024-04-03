@@ -1,10 +1,6 @@
 # Sonusah
 India news cinema crim
-I am very happy 
-very hv
-so free
-i good
-i have good 
+I am very Happy 
 pradeep Kumar Singh and claim nhi huaa 
 i love you maa maa maa maa 
 ice cream hai kya 
